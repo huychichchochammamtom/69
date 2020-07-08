@@ -1,2 +1,3 @@
-# 69
-69
+# Get Started!
+
+Add files and start typing 🎉
